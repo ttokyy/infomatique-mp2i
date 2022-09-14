@@ -1,1 +1,0 @@
-# infomatique-mp2i
